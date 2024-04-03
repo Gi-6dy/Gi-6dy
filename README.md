@@ -1,4 +1,4 @@
-Saludos, brazos de 35!
+**¡Saludos, brazos de 35!**
 
 Soy Sara, conocida en el ámbito del powerlifting como Gi_6dy. Me dedico al levantamiento de pesas y soy una apasionada del mundo de las ciencias exactas e ingeniería. Actualmente, estoy estudiando ingeniería en computación en el CUCEI de la UdeG, mientras me encuentro en proceso de convertirme en una strongwoman.
 
